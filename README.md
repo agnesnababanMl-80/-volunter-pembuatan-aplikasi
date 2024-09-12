@@ -10,4 +10,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Agnes,  [oo.or.id](www.linkedin.com/in/agnes-imanuela-nababan-110654224).
+* Agnes,  [linkedin](www.linkedin.com/in/agnes-imanuela-nababan-110654224).
